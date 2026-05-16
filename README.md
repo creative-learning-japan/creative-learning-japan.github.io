@@ -6,7 +6,7 @@
 
 ## 2. Project
 
-## 3.　Passion
+## 3. Passion
 
 ## 4. Peers
 - [アメリカに広がる「AI学校」通常授業はわずか2時間、AIが教え、先生は「ガイド役」に | ニューズウィーク日本版 オフィシャルサイト](https://www.newsweekjapan.jp/articles/-/17142)
